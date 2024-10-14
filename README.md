@@ -1,1 +1,1 @@
-# akra-hub
+https://serahub.site/script.txt
